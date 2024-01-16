@@ -1,4 +1,3 @@
 
-
-https://github.com/SergeyKotovich/CargoDelivery/assets/115530111/53e2fb74-79e5-4164-9640-b481b6b35661
+https://github.com/SergeyKotovich/CargoDelivery/assets/115530111/1f101419-039e-43bd-a4a0-c4d5d36c6405
 
